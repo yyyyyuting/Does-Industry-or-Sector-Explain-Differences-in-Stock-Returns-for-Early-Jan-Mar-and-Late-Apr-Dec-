@@ -1,0 +1,1 @@
+# Does-Industry-or-Sector-Explain-Differences-in-Stock-Returns-for-Early-Jan-Mar-and-Late-Apr-Dec-
